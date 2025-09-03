@@ -17,7 +17,7 @@
 <br>https://t.me/hlwcx2
 <br>
 <br>官方推特：
-<br>https://twitter.com/hlcxb110
+<br>https://twitter.com/zhi_de23240
 <br>
 <br>新地址获取方法：
 <br>hlwdizhi@gmail.com

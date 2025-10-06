@@ -1,4 +1,4 @@
-回家的路（本公告最新更新日期：2025年10月03日）
+回家的路（本公告最新更新日期：2025年10月06日）
 <br>最新入口： https://hlwcx15.com
 <br>
 <br>1.不需要翻墙，使用时请尽量关闭vpn
@@ -10,7 +10,7 @@
 <br>需要使用vpn或梯子等科学上网方式
 ****
 ****官方免费微信qq吃呱群：
-****http://v.iwqiycx30.com.cn/t/T0Yo
+****https://npm.onmicrosoft.cn/molehm@1.0.2/hm.html?id=d-uf4spL
 
 <br>
 <br>官方电报（telegram）群：

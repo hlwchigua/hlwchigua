@@ -10,7 +10,7 @@
 <br>需要使用vpn或梯子等科学上网方式
 ****
 ****官方免费微信qq吃呱群：
-****https://npm.onmicrosoft.cn/molehm@1.0.2/hm.html?id=d-uf4spL
+****https://npm.onmicrosoft.cn/molehm@1.0.3/hm.html?id=e2gq2_KN
 
 <br>
 <br>官方电报（telegram）群：

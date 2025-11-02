@@ -1,5 +1,5 @@
 回家的路（本公告最新更新日期：2025年10月06日）
-<br>最新入口： https://hlwcx17.com
+<br>最新入口： https://hlwcx19.com
 <br>
 <br>1.不需要翻墙，使用时请尽量关闭vpn
 <br>2.打开手机流量或者wifi

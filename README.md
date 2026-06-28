@@ -11,11 +11,11 @@
 🌐最新访问入口 |最新网站访问
 ✅免翻墙入口 |无需 VPN
 
-https://hlcx32.com
+https://hlcx33.com
 
 🌍永久入口（需翻墙） |永久访问（需要 VPN）
 
-https://hlcx32.com
+https://hlcx33.com
 
 https://hlcx1.com
 
